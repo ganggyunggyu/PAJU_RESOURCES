@@ -1,0 +1,1 @@
+# PAJU_RESOURCES
